@@ -1,6 +1,6 @@
 ## Ciallo ～(∠・ω< )⌒★! Have a nice day.
 
-💡 Check here for my [Personal blog](https://evigila.net/) 
+💡 查看我的[个人博客](https://blog.evigila.net/) 
 
 Hi~ I'm Evigila.
 
